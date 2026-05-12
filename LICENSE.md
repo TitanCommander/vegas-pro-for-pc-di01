@@ -1,4 +1,4 @@
-# 
+# custom Vegas Pro for PC | Vegas Pro for Windows Effect | proxy-editing + audio-sync offers the most advanced Vegas Pro for PC | Vegas Pro for Windows effect, with proxy-editing
 
 
 
